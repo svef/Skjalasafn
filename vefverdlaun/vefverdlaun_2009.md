@@ -1,0 +1,66 @@
+
+# Íslensku vefverðlaunin 2009
+
+Ja.is var valinn besti íslenski vefurinn á Íslensku vefverðlaunum sem Samtök vefiðnaðarins stóðu fyrir í dag. Katrín Júlísdóttir, Iðnaðarráðherra afhenti verðlaunin við athöfn sem haldin var í Hugmyndahúsi háskólanna og voru veittar viðurkenningar fyrir framúrskarandi vefi í 10 flokkum. Alls bárust yfir 100 tilnefningar til verðlaunanna að þessu sinni, en þetta er í níunda skipti sem Íslensku Vefverðlaunin eru haldin.
+
+Í umsögn dómnefndar um vef [ja.is](http://ja.is/) kom fram að "Vefurinn þjóni hlutverki sínu vel, sé stílhreinn, einfaldur og vel skipulagður. Leitarvélin skilur íslensku í öllum beygingarmyndum, niðurstöður eru skilvirkar og mjög auðvelt er að gera greinarmun á því hvort leitað er að fólki eða fyrirtækjum. Kortaleit er til fyrirmyndar og má segja að vefurinn sé byltingarkenndur í aðgengi upplýsinga um íslenska staðhætti."
+
+## Aðrir vefir sem fengu viðurkenningu við sama tækifæri voru:
+
+*   Besta viðmót og hönnun – [nikitaclothing.com](http://nikitaclothing.com/)
+*   Frumlegasti – [hugmyndaraduneytid.is](http://hugmyndaraduneytid.is/)
+*   Besti sölu- og kynningarvefurinn (yfir 50 starfsmenn) – [play.eveonline.com](http://play.eveonline.com/)
+*   Besti sölu- og kynningarvefurinn (undir 50 starfsmenn) – [nikitaclothing.com](http://nikitaclothing.com/)
+*   Besti þjónustu- og upplýsingavefurinn – [ja.is](http://ja.is/)
+*   Besti afþreyingar- og fréttavefurinn – [skjarinn.is](http://skjarinn.is/)
+*   Besta markaðsherferðin – Landsbankinn/Náman
+*   Besta blog/efnistök/myndefni – [gummisig.com](http://gummisig.com/)
+*   Besti hand-smátækja vefurinn – [m.ja.is](http://m.ja.is/)
+
+Íslensku vefverðlaunin eru uppskeruhátíð vefiðnaðarins, haldin með það að markmiði að efla hann, verðlauna bestu vefina og hvetja þá sem starfa á þessum vettvangi til dáða.
+
+## Umsagnir Dómnefnda:
+
+### Besti íslenski vefurinn – [ja.is](http://ja.is/)
+
+Vefurinn þjónar hlutverki sínu vel, er stílhreinn, einfaldur og vel skipulagður. Leitarvélin skilur íslensku í öllum beygingarmyndum, niðurstöður eru skilvirkar og mjög auðvelt er að gera greinarmun á því hvort leitað er að fólki eða fyrirtækjum. Kortaleit er til fyrirmyndar og má segja að vefurinn sé byltingarkenndur í aðgengi upplýsinga um íslenska staðhætti. Afburðavefur með mikið notagildi. “Já er svarið”.
+
+### Besta viðmót og hönnun – [nikitaclothing.com](http://nikitaclothing.com/)
+
+Vefurinn er töff. Útlit og stíll eru fersk án þess að það komi niður á viðmótinu. Vefurinn hefur sterkann karakter sem styður vel við þá ímynd sem Nikita vill standa fyrir. Það er greinilegt að aðstandendur Nikita þekkja sinn markhóp vel og koma til móts við þarfir hans í allri hönnun vefsins. Möguleikar netsins eru nýttir til hins ítrasta með vönduðu margmiðlunarefni. Áhrifamikið og sterkt myndefni gerir vörum og viðskiptavinum Nikita góð skil. Afburða sterk hönnun og myndefni skipa heild sem sendir skýr skilaboð um fyrir hvað Nikita stendur.
+
+### Frumlegasti – [hugmyndaraduneytid.is](http://hugmyndaraduneytid.is/)
+
+Góð hugmynd er lítils virði nema því aðeins að henni sé hrint í framkvæmd. Vefurinn er gott dæmi um hvernig hægt er að nýta Internetið til að efla og dýpka þjóðmálaumræðu þar sem bæði stjórmálastéttin og almenningur hefur aðgang og allir eru jafn réttháir. Gerð er krafa um að fólk tjái sig málefnanlega, sem útilokar hin hefðbundnu nettröll sem oftast hafa lítið málefnanlegt til umræðunnar að leggja. Á vefnum getur fólk komið á framfæri hugmyndum og haft skoðanir á hugmyndum annarra á uppbyggilegan hátt. Fersk viðbót við núverandi samskiptaflóru á Íslandi.
+
+### Besti sölu- og kynningarvefurinn (undir 50) – [nikitaclothing.com](http://nikitaclothing.com/)
+
+Nikita vefnum tekst sérlega vel að sinna því hlutverki sínu að kynna vörur fyrirtækisins fyrir endursöluaðilum. Umfjöllun, efnistök og myndefni styður allt við þá ímynd og lífsstíl sem Nikita vill standa fyrir og þann markhóp sem vörum Nikita er ætlað að ná til, en frá upphafi hefur það verið “girls who ride”. Þar er að finna mikið af fréttum og myndefni af stelpum sem nota vöruna og hafa tamið sér þann lífsstíl sem vörumerkið stendur fyrir. Vörulína fyrirtækisins er sett fram á smekklegan og aðgengilegan hátt. Saman skapa allir þessir þættir einstaklega sterka heildarmynd.
+
+### Besti sölu- og kynningarvefurinn (yfir 50) – [play.eveonline.com](http://play.eveonline.com/)
+
+Einfalt, þægilegt og umfram allt hnitmiðað útlit vefsins gerir notanda kleyft að taka fyrsta skrefið inn í nýjan heim á forsíðu. Varan er útskýrð með góðu kynningarmyndbandi og í bakgrunni er mynd sem gefur góða hugmynd af því sem framundan er. Á undirsíðum kemst viðskiptavinurinn lengra inn í heim Eve, finnur skemmtilegt kynningarefni þar sem honum er boðið að prófa vöruna eða kaupa eintak. Með áhrifaríku myndefni og vönduðu afþreyingarefni hefur CCP náð að búa til besta sölu- og kynningarvefinn árið 2010.
+
+### Besti þjónustu- og upplýsingavefurinn – [ja.is](http://ja.is/)
+
+Besti þjónustu- og upplýsingavefurinn að mati dómefndar er vefsvæði Já. Vefurinn er einfaldur, skýr og leiðir notandann áfram með góðu skipulagi og framsetningu. Vefurinn býður uppá öfluga íslenska og alþjóðlega leitarvel sem veitir vefnum mikla sérstöðu. Vel útfærð kortalausn er framúrskarandi viðbót við aðra þjónustu Já, en þar er hægt að nálgast upplýsingar um staðsetningu fyrirtækja og heimilsföng einstaklinga auk vegvísunar (leiðarbestun) og mælistiku fyrir vegalengdir. Auk þess býður vefurinn uppá GPS staðsetningu á korti og birtir mismunandi efnisflokka t.d. alla sundstaði á landinu. Metnaðarfullur vefur sem skilar þjónustuhlutverki sínu fullkomlega.
+
+### Besti afþreyingar- og fréttavefurinn – [skjarinn.is](http://skjarinn.is/)
+
+Skjárinn.is er framúrskarandi vefur sem þjónar markmiði sínu vel með áherslu á framsetningu myndefnis. Á vefnum er auðvelt að finna upplýsingar um allt það afþreyingarefni sem Skjárinn hefur upp á að bjóða. Dómnefnd fannst möguleikar á borð við myndbrot úr næsta þætti, bókamerki á bíómyndir og möguleiki notenda á að búa til sinn persónulega lista af sjóvarpstöðvum mjög vel útfærðir. Einnig þykir uppsetning margmiðlunarspilara með kaflaskiptingu til hliðar og yfirlit annarra þátta til fyrirmyndar.
+
+### Besta blog/efnistök/myndefni – [gummisig.com](http://gummisig.com/)
+
+Vefurinn sker sig úr fyrir áberandi leturnotkun og líflega hönnun auk þess sem efnið er skemmtilega fram sett. Innihaldið er skrifað af lipurð og einlægni þannig að maðurinn á bakvið vefinn skín vel í gegn. Vefurinn er gott dæmi um það hvernig fagmenn geta nýtt sér veraldarvefinn til að koma sér og verkum sínum á framfæri bæði á faglegan og áhrifaríkan hátt.
+
+### Besti hand-smátækja vefurinn – [m.ja.is](http://m.ja.is/)
+
+Þetta er framúrskarandi þjónustuvefur sem miðlar upplýsingum á einfaldan og skýran hátt hvort sem leitað er eftir símanúmerum eða þjónustu. Góð útfærsla á kortalausn er punkturinn yfir i:ið á þessum vef.
+
+### Besta markaðsherferðin – Landsbankinn/Náman
+
+Herferð Landsbankans fyrir Námuna er bæði vel útfærð og með skýran markhóp. Borðar herferðarinnar vöktu athygli fyrir gagnvirka framsetningu á myndagátum og vefsvæði herferðarinnar er til fyrirmyndar. Textar og myndefni faglega framsett á líflegan og aðgengilegan máta og byggja á sterkum grafískum grunni sem hefur einkennt vefsvæði Landsbankans um þónokkurt skeið. Í heildina er þetta vel heppnuð og skemmtileg herferð þar sem eiginleikar netsins fá að njóta sín.
+
+## Dómnefnd
+
+?
