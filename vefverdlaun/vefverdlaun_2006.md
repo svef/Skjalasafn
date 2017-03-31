@@ -45,7 +45,7 @@ Söfnun tilnefninga til Íslensku vefverðlaunanna fór fram frá 15. desember t
 ## Besti (sölu- og) þjónustuvefurinn
 
 * [elisabet.is](http://web.archive.org/web/2006*/http://elisabet.is "Fletta léninu elisabet.is upp í archive.org tímavélinni á árinu 2006")
-"* [ils.is	](http://web.archive.org/web/2006*/http://ils.is	 ""Fletta léninu ils.is	 upp í archive.org tímavélinni á árinu 2006"")"
+* [ils.is](http://web.archive.org/web/2006*/http://ils.is "Fletta léninu ils.is	 upp í archive.org tímavélinni á árinu 2006")
 * [ja.is](http://web.archive.org/web/2006*/http://ja.is "Fletta léninu ja.is upp í archive.org tímavélinni á árinu 2006")
 * [landsbanki.is](http://web.archive.org/web/2006*/http://landsbanki.is "Fletta léninu landsbanki.is upp í archive.org tímavélinni á árinu 2006")
 * [**midi.is**](http://web.archive.org/web/2006*/http://midi.is "Fletta léninu midi.is upp í archive.org tímavélinni á árinu 2006")

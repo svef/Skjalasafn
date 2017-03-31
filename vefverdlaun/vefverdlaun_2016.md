@@ -134,5 +134,3 @@ Að lokum veitum við tvær _vefhetju_ viðurkenningar til einstaklings og hóp
 [Jónatan Arnar Örlygsson](https://www.facebook.com/jonatan.orlygsson?fref=ts) fyrir ötult starf í þágu menntunar á sviði vefiðnaðarins með Vefskólanum.
 
 [JSConf Iceland](https://www.facebook.com/jsconfis/?fref=ts) teymið fyrir að koma alþjóðlegri ráðstefnu á litla Ísland með tilheyrandi fjölbreytileika og tækifærum fyrir vefiðnaðinn.
-
-Get neat [CSS files](https://html-cleaner.com/css/) with the new free online tool hosted by HTML Cleaner. Try it today!

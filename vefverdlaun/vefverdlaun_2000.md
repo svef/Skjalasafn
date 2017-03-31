@@ -5,7 +5,7 @@
 
 ## Besti íslenski vefurinn
 
-* **strik.is**
+[**strik.is**](http://web.archive.org/web/2000*/http://strik.is "Fletta léninu strik.is upp í archive.org tímavélinni á árinu 2000")
 
 ## Besti (stofnunar- eða) fyrirtækisvefurinn
 
