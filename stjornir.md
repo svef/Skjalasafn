@@ -1,5 +1,15 @@
 ## Stjórnir SVEF
 
+### Stjórn SVEF starfsárið 2017–2018
+
+* Jonathan Gerlach, Kolibri, formaður
+* Anna Signý Guðbjörnsdóttir, TM Software
+* Benedikt Valdez, Kolibri
+* Birgir Hrafn Birgisson, Sendiráðið
+* Hjalti Már Einarsson, Nordic Visitor
+* Ólafur Sverrir Kjartansson, ueno.
+* Ragnheiður Þorleifsdóttir, Hugsmiðjan
+
 ### Stjórn SVEF starfsárið 2016–2017
 
 * Markús M. Þorgeirsson, Landsbankanum, formaður
